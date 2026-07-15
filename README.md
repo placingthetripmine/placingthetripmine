@@ -3,7 +3,7 @@
 <br clear="both">
 
 <div data-importer="image" align="center">
-  <img data-importer="image" height="260" src="[[https://media.tenor.com/SLEE1TESnk4AAAA1/phighting-subspace.webp]]"  />
+  <img data-importer="image" height="260" src="https://media.tenor.com/SLEE1TESnk4AAAA1/phighting-subspace.webp"  />
 </div>
 
 ###
