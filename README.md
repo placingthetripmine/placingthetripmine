@@ -6,7 +6,7 @@
 
 ###
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[pt info](https://www.youtube.com/watch?v=jFqIc8wZE_M)ㅤㅤ[ata](https://www.youtube.com/watch?v=jFqIc8wZE_M)ㅤㅤ[linktree](https://www.youtube.com/watch?v=jFqIc8wZE_M)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[pt info](https://placingthetripmine.straw.page/)ㅤㅤ[ata](https://www.youtube.com/watch?v=jFqIc8wZE_M)ㅤㅤ[linktree](https://www.youtube.com/watch?v=jFqIc8wZE_M)
 
 ###
 
