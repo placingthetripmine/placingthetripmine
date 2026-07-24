@@ -14,7 +14,6 @@
 
 ###
 
-<p data-importer="text" align="center">ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ</p>
 
 <div data-importer="image" align="center">
   <img data-importer="image" height="889" src="https://files.catbox.moe/i2rjxi.webp"  />
